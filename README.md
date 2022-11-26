@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @owwe
+- 👀 I’m interested in machine learning
+- 📫 How to reach me berkanyapici9956@gmail.com
